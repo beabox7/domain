@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://beabox1.com/)
+[看片最新地址一 点击此处](https://boxbin.store/)
 
-[看片最新地址二 点击此处](https://beabox2.com/)
+[看片最新地址二 点击此处](https://bihebox.pro/)
 
-[看片最新地址三 点击此处](https://beabox3.com/)
+[看片最新地址三 点击此处](https://binpc.online/)
 
-[看片最新地址四 点击此处](https://beabox4.com/)
+[看片最新地址四 点击此处](https://binbox.online/)
 
 看片提醒您请注意，永久地址一定要加https
 
