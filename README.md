@@ -5,7 +5,7 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://q7lk.com)
+[看片最新地址一 点击此处](https://p8rv.com)
 
 [看片最新地址二 点击此处](https://t)
 
