@@ -5,7 +5,7 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://b5h6x7y.com)
+[看片最新地址一 点击此处](https://bh791tools.shop)
 
 [看片最新地址二 点击此处](https://t)
 
