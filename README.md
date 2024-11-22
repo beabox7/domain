@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://bih403tools.wiki)
+[看片最新地址一 点击此处](https://bxtyk.wiki)
 
-[看片最新地址二 点击此处](https://penhqx.wiki)
+[看片最新地址二 点击此处](https://behunx.shop)
 
-[看片最新地址三 点击此处](https://b1h2r3s.com)
+[看片最新地址三 点击此处](https://penhqx.wiki)
 
 [看片最新地址四 点击此处](https://penvwy.shop)
 
