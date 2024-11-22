@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://bihe955box.shop)
+[看片最新地址一 点击此处](https://tooljy.wiki)
 
-[看片最新地址二 点击此处](https://bxtyk.wiki)
+[看片最新地址二 点击此处](https://bihe955box.shop)
 
-[看片最新地址三 点击此处](https://penciljw.shop)
+[看片最新地址三 点击此处](https://bxfnw.shop)
 
-[看片最新地址四 点击此处](https://bxzmy.shop)
+[看片最新地址四 点击此处](https://bihe955box.shop)
 
 看片提醒您请注意，永久地址一定要加https
 
