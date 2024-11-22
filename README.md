@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://tooljmx.wiki)
+[看片最新地址一 点击此处](https://bahiru.online)
 
-[看片最新地址二 点击此处](https://bxfnw.shop)
+[看片最新地址二 点击此处](https://b4h5a6b.com)
 
-[看片最新地址三 点击此处](https://bhk7pl.lol)
+[看片最新地址三 点击此处](https://b9h0r1s.com)
 
 [看片最新地址四 点击此处](https://bahiru.online)
 
