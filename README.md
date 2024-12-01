@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://iikc9twet5x.shop)
+[看片最新地址一 点击此处](https://hhibpmdvr8t.wiki)
 
-[看片最新地址二 点击此处](https://hhibpmdvr8t.wiki)
+[看片最新地址二 点击此处](https://gtetzofmpg6.wiki)
 
-[看片最新地址三 点击此处](https://3tyc5nvz8gw6.shop)
+[看片最新地址三 点击此处](https://gtetzofmpg6.wiki)
 
 [看片最新地址四 点击此处](https://hhibpmdvr8t.wiki)
 
