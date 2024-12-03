@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://f2c2lm469w.wiki)
+[看片最新地址一 点击此处](https://e6jvq62d396.wiki)
 
-[看片最新地址二 点击此处](https://yi7oljuwol.wiki)
+[看片最新地址二 点击此处](https://e6jvq62d396.wiki)
 
-[看片最新地址三 点击此处](https://yi7oljuwol.wiki)
+[看片最新地址三 点击此处](https://qusuzbaimj.shop)
 
 [看片最新地址四 点击此处](https://e6jvq62d396.wiki)
 
