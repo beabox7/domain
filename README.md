@@ -5,9 +5,9 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://mp04sovuof8.shop)
+[看片最新地址一 点击此处](https://rxeyqsz3ovw.wiki)
 
-[看片最新地址二 点击此处](https://rxeyqsz3ovw.wiki)
+[看片最新地址二 点击此处](https://n2a3r7ofb3.wiki)
 
 [看片最新地址三 点击此处](https://j610ph139ue4.shop)
 
