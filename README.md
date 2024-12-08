@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://h4a2h67w8x.shop)
+[看片最新地址一 点击此处](https://d4r63ia7u6h.wiki)
 
-[看片最新地址二 点击此处](https://hubkwz.wiki)
+[看片最新地址二 点击此处](https://h4a2h67w8x.shop)
 
-[看片最新地址三 点击此处](https://hubkwz.wiki)
+[看片最新地址三 点击此处](https://penhjw.shop)
 
 [看片最新地址四 点击此处](https://dywf6oakoh86.shop)
 
