@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://toolfj.wiki)
+[看片最新地址一 点击此处](https://penfwk.shop)
 
 [看片最新地址二 点击此处](https://toolqk.wiki)
 
-[看片最新地址三 点击此处](https://3h78mqj4psg.shop)
+[看片最新地址三 点击此处](https://toolqk.wiki)
 
-[看片最新地址四 点击此处](https://toolqk.wiki)
+[看片最新地址四 点击此处](https://dwjlw6o834kh.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
