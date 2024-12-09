@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://toolqmv.wiki)
+[看片最新地址一 点击此处](https://3h78mqj4psg.shop)
 
-[看片最新地址二 点击此处](https://3h78mqj4psg.shop)
+[看片最新地址二 点击此处](https://yf83414yvvy.wiki)
 
-[看片最新地址三 点击此处](https://yf83414yvvy.wiki)
+[看片最新地址三 点击此处](https://o5sisicdxi9h.wiki)
 
 [看片最新地址四 点击此处](https://toolfj.wiki)
 
