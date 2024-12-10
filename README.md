@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://bxwkp.shop)
+[看片最新地址一 点击此处](https://48kf60vs4sd.wiki)
 
-[看片最新地址二 点击此处](https://48kf60vs4sd.wiki)
+[看片最新地址二 点击此处](https://bxqnv.wiki)
 
 [看片最新地址三 点击此处](https://hubfzx.shop)
 
-[看片最新地址四 点击此处](https://penhxj.shop)
+[看片最新地址四 点击此处](https://hubfzx.shop)
 
 看片提醒您请注意，永久地址一定要加https
 
