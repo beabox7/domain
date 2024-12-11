@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://bhsupply792.shop)
+[看片最新地址一 点击此处](https://23bhtools.wiki)
 
-[看片最新地址二 点击此处](https://23bhtools.wiki)
+[看片最新地址二 点击此处](https://bhsupply792.shop)
 
-[看片最新地址三 点击此处](https://rhikiqr5vkm.shop)
+[看片最新地址三 点击此处](https://pencilset203.shop)
 
 [看片最新地址四 点击此处](https://e2uxgwj6hu0o.wiki)
 
