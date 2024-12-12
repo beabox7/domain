@@ -7,9 +7,9 @@
 
 [看片最新地址一 点击此处](https://bhdizhi120.wiki)
 
-[看片最新地址二 点击此处](https://hebron.online)
+[看片最新地址二 点击此处](https://bhdizhi149.wiki)
 
-[看片最新地址三 点击此处](https://bhdizhi129.wiki)
+[看片最新地址三 点击此处](https://bhdizhi132.wiki)
 
 [看片最新地址四 点击此处](https://bhdizhi149.wiki)
 
