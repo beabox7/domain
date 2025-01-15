@@ -9,9 +9,9 @@
 
 [看片最新地址二 点击此处](https://bhdizhi82.wiki)
 
-[看片最新地址三 点击此处](https://bhdizhi114.wiki)
+[看片最新地址三 点击此处](https://bhdizhi84.wiki)
 
-[看片最新地址四 点击此处](https://bhdizhi118.wiki)
+[看片最新地址四 点击此处](https://bhdizhi114.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
