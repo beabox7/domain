@@ -11,7 +11,7 @@
 
 [看片最新地址三 点击此处](https://bhq4v5y7.com)
 
-[看片最新地址四 点击此处](https://boxworld5.wiki)
+[看片最新地址四 点击此处](https://beboxnet.life)
 
 看片提醒您请注意，永久地址一定要加https
 
