@@ -9,9 +9,9 @@
 
 [看片最新地址二 点击此处](https://hbxo97.life)
 
-[看片最新地址三 点击此处](https://beboxnet.life)
+[看片最新地址三 点击此处](https://bebox001.life)
 
-[看片最新地址四 点击此处](https://bebox001.life)
+[看片最新地址四 点击此处](https://penhub3.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
