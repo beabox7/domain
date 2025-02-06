@@ -7,11 +7,11 @@
 
 [看片最新地址一 点击此处](https://bhstreamz.com)
 
-[看片最新地址二 点击此处](https://b9h0p1q.com)
+[看片最新地址二 点击此处](https://b6h3n5.com)
 
-[看片最新地址三 点击此处](https://b6h3n5.com)
+[看片最新地址三 点击此处](https://bhq4v5y7.com)
 
-[看片最新地址四 点击此处](https://bhq4v5y7.com)
+[看片最新地址四 点击此处](https://abhu67.shop)
 
 看片提醒您请注意，永久地址一定要加https
 
