@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://b2h3e4f.com)
+[看片最新地址一 点击此处](https://bhstreamz.com)
 
-[看片最新地址二 点击此处](https://b6h3n5.com)
+[看片最新地址二 点击此处](https://b2h3e4f.com)
 
-[看片最新地址三 点击此处](https://bh5z8r.shop)
+[看片最新地址三 点击此处](https://b6h3n5.com)
 
 [看片最新地址四 点击此处](https://beboxnet.life)
 
