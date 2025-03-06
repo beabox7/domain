@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://pj391rudp.art)
+[看片最新地址一 点击此处](https://80o1twhp.art)
 
-[看片最新地址二 点击此处](https://mgj5ubvt.art)
+[看片最新地址二 点击此处](https://pj391rudp.art)
 
-[看片最新地址三 点击此处](https://i5tz6qrp.wiki)
+[看片最新地址三 点击此处](https://mgj5ubvt.art)
 
-[看片最新地址四 点击此处](https://gj0zo6h0fz.art)
+[看片最新地址四 点击此处](https://i5tz6qrp.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
