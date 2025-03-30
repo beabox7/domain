@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://gafrikdu.wiki)
+[看片最新地址一 点击此处](https://itn1kv52.art)
 
-[看片最新地址二 点击此处](https://fuwkw37eq3.wiki)
+[看片最新地址二 点击此处](https://gafrikdu.wiki)
 
-[看片最新地址三 点击此处](https://wjhanxs0.art)
+[看片最新地址三 点击此处](https://fuwkw37eq3.wiki)
 
 [看片最新地址四 点击此处](https://kvt7sxh.art)
 
