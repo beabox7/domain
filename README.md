@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://50ql79mok.art)
+[看片最新地址一 点击此处](https://4k21txgg4.art)
 
-[看片最新地址二 点击此处](https://4k21txgg4.art)
+[看片最新地址二 点击此处](https://c0kkitl52p.art)
 
-[看片最新地址三 点击此处](https://c0kkitl52p.art)
+[看片最新地址三 点击此处](https://r0mcics.art)
 
-[看片最新地址四 点击此处](https://4vlxdwt.art)
+[看片最新地址四 点击此处](https://qkf48fjf.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
