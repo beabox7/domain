@@ -5,9 +5,9 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://vdrwwnti.shop)
+[看片最新地址一 点击此处](https://2v1wx6155.wiki)
 
-[看片最新地址二 点击此处](https://spkzomcn.art)
+[看片最新地址二 点击此处](https://50ql79mok.art)
 
 [看片最新地址三 点击此处](https://6rodizk.art)
 
