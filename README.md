@@ -5,11 +5,11 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://uer79tbcb.art)
+[看片最新地址一 点击此处](https://6rodizk.art)
 
-[看片最新地址二 点击此处](https://6rodizk.art)
+[看片最新地址二 点击此处](https://4z0l3kxk1y.wiki)
 
-[看片最新地址三 点击此处](https://lr7lbf2k.shop)
+[看片最新地址三 点击此处](https://r0mcics.art)
 
 [看片最新地址四 点击此处](https://bfwwp040d.art)
 
