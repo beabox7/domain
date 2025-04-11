@@ -5,7 +5,7 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://spkzomcn.art)
+[看片最新地址一 点击此处](https://zke9rm6e6j.shop)
 
 [看片最新地址二 点击此处](https://1rlcjmtwer.art)
 
