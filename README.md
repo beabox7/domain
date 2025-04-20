@@ -7,11 +7,11 @@
 
 [看片最新地址一 点击此处](https://b0h1w2x.com)
 
-[看片最新地址二 点击此处](https://biheshop1.wiki)
+[看片最新地址二 点击此处](https://biheplus7.wiki)
 
-[看片最新地址三 点击此处](https://biheplus7.wiki)
+[看片最新地址三 点击此处](https://boxgear875.shop)
 
-[看片最新地址四 点击此处](https://boxgear875.shop)
+[看片最新地址四 点击此处](https://bhdizhi57.wiki)
 
 看片提醒您请注意，永久地址一定要加https
 
