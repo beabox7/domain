@@ -5,13 +5,13 @@
 
 [永久访问地址（翻牆） 点击此处](https://beabox.net/)
 
-[看片最新地址一 点击此处](https://bhe8n0v4f8q9.shop)
+[看片最新地址一 点击此处](https://bhm9h9d1j6j0.shop)
 
-[看片最新地址二 点击此处](https://bhm9h9d1j6j0.shop)
+[看片最新地址二 点击此处](https://bhk4c1e7d6f9.shop)
 
-[看片最新地址三 点击此处](https://bhk4c1e7d6f9.shop)
+[看片最新地址三 点击此处](https://bhl3i4z9x8g1.shop)
 
-[看片最新地址四 点击此处](https://bhl3i4z9x8g1.shop)
+[看片最新地址四 点击此处](https://bhv3c1p5i6k0.shop)
 
 看片提醒您请注意，永久地址一定要加https
 
